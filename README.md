@@ -3,3 +3,7 @@
 
 Video presentation:
 https://drive.google.com/file/d/1J6UzA6qRt2kWCMwX7G6Ca6NWqiraRFnI/view?usp=sharing
+
+Credits:
+Illustration & Programming : Michelle Sobolewski
+Music: Beautiful Village By David Fesliyan https://www.fesliyanstudios.com/royalty-free-music/download/beautiful-village/210
